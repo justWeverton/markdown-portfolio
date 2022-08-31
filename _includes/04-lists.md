@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+Eu gosto de me exercitar
+Tocar piano 
+Desenhar 
+Escutar musica 
